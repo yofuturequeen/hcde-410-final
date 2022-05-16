@@ -1,0 +1,1 @@
+I will be analyzing makeup shade ranges of popular brands today and discovering how diverse they are and general opinions on these ranges of makeup users. 
